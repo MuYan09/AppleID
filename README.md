@@ -3,7 +3,7 @@
 
 📢 **免费共享 Apple 美区账号（Apple ID）**，专为需要访问 App Store 下载 **Shadowrocket（小火箭）**、**Quantumult X（圈X）**、**Stash** 等科学上网工具的用户提供便利！
 
----
+----
 
 ### 已购Shadowrocket小火箭账号免费共享：[【点击获取】](https://docs.applexp.com/free-accounts/Shadowrocket)
 
