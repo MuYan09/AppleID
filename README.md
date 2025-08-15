@@ -9,8 +9,8 @@
 
 ### 2025年最新美区Apple ID注册教程：[【点击进入查看教程】](https://www.muooy.com/525.html)
 
-### 独享账号购买（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://juzixp.com/)
+### 独享账号购买（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://shop.muooy.com/)
 
-### 小火箭共享账号购买：[【 点击进入】](https://juzixp.com/buy/21)
+### 小火箭共享账号购买：[【 点击进入】](https://shop.muooy.com/buy/21)
 
 ### 苹果美区账号 APPLE ID 免费账号共享：[【 点击进入】](https://github.com/MuYan09/AppleID-Tutorial)
